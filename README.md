@@ -2,9 +2,9 @@
 
 导 航 永 久 域 名Https://YTTV.VIP
 
-⭐️ 👉 地址一 ：HttpS://yt1333.com
+⭐️ 👉 地址一 ：HttpS://yt1339.com
 
-⭐️ 👉 备用导航 ：HttpS://yt1335.com
+⭐️ 👉 备用导航 ：HttpS://yt1351.com
 
 ‼️‼️长按复制到浏览器里面访问以上网址‼️ ‼️
 
