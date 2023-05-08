@@ -1,6 +1,6 @@
 樱桃 最新地址发布
 
-导 航 永 久 域 名Https://YT3.TV
+导 航 永 久 域 名Https://YTTV.VIP
 
 ⭐️ 👉 地址一 ：HttpS://yt1333.com
 
@@ -12,4 +12,4 @@
 
 📧 邮箱联系方式: yingtaofabudizhi@gmail.com （发送任意内容获取最新地址）
 
-谨记永久发布页哦！Https://YT3.TV.me
+谨记永久发布页哦！Https://YTTV.VIP
