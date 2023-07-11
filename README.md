@@ -11,4 +11,4 @@
 
 📧 邮箱联系方式: yingtaofabudizhi@gmail.com （发送任意内容获取最新地址）
 
-谨记永久发布页哦！Https://YTTV.VIP
+谨记永久发布页哦！Https://YTAV.TV
