@@ -1,10 +1,10 @@
 樱桃 最新地址发布
 
-导 航 永 久 域 名Https://YTAV.TV
+导 航 永 久 域 名[YTAV.TV](https://yt102.cc:8888/?channel=boke1)
 
-⭐️ 👉 地址一 ：HttpS://yt102.cc:8888
+⭐️ 👉 地址一 ：[yt102.cc](https://yt102.cc:8888/?channel=boke1)
 
-⭐️ 👉 备用导航 ：HttpS://yt103.cc:8888
+⭐️ 👉 备用导航 ：[yt103.cc](https://yt102.cc:8888/?channel=boke1)
 ‼️‼️长按复制到浏览器里面访问以上网址‼️ ‼️
 
 ‼️請使用Ctrl+D進行收藏本站!|电脑/Ipad/手机在线播放‼️
